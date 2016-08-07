@@ -1,0 +1,2 @@
+# krizomslamy.github.io
+#KRIZOMSLAMY
